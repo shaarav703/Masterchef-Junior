@@ -1,0 +1,1 @@
+A classic vanilla cake made with japanese techniques in the recipe applied for a soft and moist cake.
